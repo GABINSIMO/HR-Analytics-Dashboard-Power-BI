@@ -45,3 +45,5 @@ Comprendre les dynamiques de départs d’employés
 Identifier les leviers pour réduire l’attrition
 
 Optimiser la gestion des talents et la rétention
+
+![WhatsApp Image 2025-09-24 at 00 49 12](https://github.com/user-attachments/assets/e700b033-8f95-47c9-847c-ed9fd661de72)
